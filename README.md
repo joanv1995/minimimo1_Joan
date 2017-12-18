@@ -1,1 +1,1 @@
-# minimimo1_Joan
+# minimoExamenJoan
